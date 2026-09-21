@@ -2,9 +2,9 @@
 <a href="https://github.com/kawaiirazorblades">main</a>
   
 <p align="center">
-<img width="350" alt="imagem_2026-09-22_000925311" src="https://github.com/user-attachments/assets/b90f76b9-ce8b-42b4-ad69-0fe29506f137" />
+<img width="606" height="307" alt="imagem_2026-09-22_001915472" src="https://github.com/user-attachments/assets/6a4b6cc8-a7a7-424e-a9a2-e12fe06eff74" />
 
 <p align="center">
-me and <a href="https://github.com/nataliescatorccio">dumbass</a>
+me and <a href="https://github.com/nataliescatorccio">the cutest</a>
 
 
